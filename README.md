@@ -47,10 +47,15 @@ A Colletion of free stuff we can use to do our job
 
 ####CSS
 1. http://tobiasahlin.com/spinkit
+2. http://projects.lukehaas.me/css-loaders
+3. https://connoratherton.com/loaders
+4. http://www.css-spinners.com
 
-####TEMPLATES
+####Inspiration
 1. http://www.freewebsitetemplates.com
 2. http://www.templatemonster.com
+3. https://www.behance.net/search?field=44
+4. https://www.pinterest.com/explore/combina%C3%A7%C3%B5es-de-fontes-938145349253/
 
 ####Videos
 1. http://mazwai.com
