@@ -90,7 +90,7 @@ A Colletion of free stuff we can use to do our job
 15. http://thestocks.im
 16. http://www.1001freedownloads.com
 17. http://makerbook.net
-18. http://startupstockphotos.">com</a>
+18. http://startupstockphotos.com
 19. https://pixabay.com/pt
 20. http://kaboompics.com
 21. http://fancycrave.com
@@ -100,6 +100,20 @@ A Colletion of free stuff we can use to do our job
 25. https://www.pexels.com
 26. http://allthefreestock.com
 27. http://visualhunt.com
+28. http://negativespace.co
+29. http://deathtothestockphoto.com
+30. http://fancycrave.com
+31. https://picjumbo.com
+32. http://lockandstockphotos.com
+33. http://www.lifeofpix.com
+34. http://jaymantri.com
+35. http://littlevisuals.co
+36. http://images.superfamous.com
+37. http://nos.twnsnd.co
+38. http://getrefe.tumblr.com
+39. https://foodiesfeed.com
+40. https://pixabay.com/pt/users/JESHOOTS-264599
+41. http://www.uhdwallpapers.org
 
 ####Anothers
 1. http://www.designrazzi.net/category/freebies
